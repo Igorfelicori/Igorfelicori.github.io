@@ -17,19 +17,25 @@ FIAP
 Análise e Desenvolvimento de Sistemas
 (Matutino)
 Fev 2024 - Dez 2025.
+
 FUNDAÇÃO BRADESCO/ REGGIO (ETAPA)
 2011-2023
 Ensino médio completo.
 
 ### Idiomas
 Inglês avançado. YÁGIZI DE 2018-2019;
+
 PROFESSOR PARTICULAR 2020-ATUAL.
 
 ### Competências
 -COMUNICAÇÃO;
+
 -TRABALHO EM EQUIPE;
+
 -MICROSOFT OFFICE;
+
 -PROGRAMAÇÃO;
+
 -DESENVOLVIMENTO DE SISTEMAS.
 
 ### CURSOS/CERTIFICADOS
